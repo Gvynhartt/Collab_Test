@@ -1,3 +1,1 @@
 # KORABAREESHON WAAKUSU!
-
-A + B + C ~hen
